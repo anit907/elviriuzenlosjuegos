@@ -1,1 +1,1 @@
-# el viriuz en los juegos
+# el viruz en los juegos
